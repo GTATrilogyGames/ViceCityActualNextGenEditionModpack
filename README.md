@@ -1,4 +1,4 @@
-# ViceCityActualNextGenEditionModpack
+# GTA Vice City Actual NextGen Edition Modpack
 ![image thumb jpeg 5c16ed52cf31afcd0c2031828b3c5e27](https://github.com/user-attachments/assets/f8ec3362-0a0c-45f4-a719-d2a99e7609c7)
 
 
